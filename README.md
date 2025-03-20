@@ -1,1 +1,1 @@
-cancellato tutto
+scancellato tuttos
